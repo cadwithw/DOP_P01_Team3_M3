@@ -6,5 +6,9 @@ hello again, this is the second line of code 676767676767
 
 hello 67 is my lucky number
 
-gun to my head knife to my Throat but I still push on 
+gun to my head knife to my Throat but I still push on
+
+
+
+hi i'm Haziq.
 
